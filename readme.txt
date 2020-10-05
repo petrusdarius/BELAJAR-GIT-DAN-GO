@@ -1,0 +1,1 @@
+Baca panduan ini terlebih dahulu
